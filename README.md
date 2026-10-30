@@ -1,4 +1,4 @@
-# ThatNezMod-V2-for-Balatro
+# ThatNezMod
 to get the mod to work you gotta do the basics of balljiggle modding:
 get steammodded and lovely
 # balatro modding tutorial 2019 no virus (legit)
